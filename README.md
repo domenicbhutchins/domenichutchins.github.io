@@ -10,7 +10,7 @@ For Hutchins' remastering project of works spanning from 2021 to 2023, please vi
 
 
 
-Working in tandem with ESS's Creative Audio Archive, Hutchins is currently soliciting rare materials (ephemera, bootlegs, magazines, articles, interviews, newspapers, photos, essays, etc.) that document Chicago’s legendary underground music scene of the 1990s, for potential inclusion in a large public archive. Hutchins has completed a 19 pp. illustrated cover-letter for the archive. You can contact him at hutchinsdomenic@gmail.com  
+Working in tandem with ESS's Creative Audio Archive, Hutchins is currently soliciting <b>rare</b> materials (ephemera, bootlegs, magazines, articles, interviews, newspapers, photos, essays, etc.) that document Chicago’s legendary underground music scene of the 1990s, for potential inclusion in a large public archive. Hutchins has completed a 19 pp. illustrated cover-letter for the archive. You can contact him at hutchinsdomenic@gmail.com  
 
 
 
@@ -26,7 +26,7 @@ Bio – Writer, Creative Music, Rare Book Seller: Domenic Hutchins (b. 1991, U.S
 
 
 
-An avid organizer of creative music concerts in the Northeast (and North America more broadly), Hutchins has in 2022 and 2023 installed an extensive public-facing archive of ‘90s Chicago music 10-years-in-the-making at Chicago’s beloved ESS; presented unpublished prepared piano works on Swedish radio; performed at prisoner advocacy coalition events; and published an essay exploring racial politics surrounding the work of early minimalist Terry Jennings (1940–1981). After invitations by Journal of Sonic Studies (NL), Sound American (US), and others, he has begun research on Iancu Dumitrescu and Axel Dörner. Further working to dissolve the rifts between the sensual, the aesthetic and the politico-rational, Hutchins is currently preparing a lengthy manuscript (in private circulation, 2019 to present), “Please Note Our Failure : Two Generations of American Experimental Music” that embraces the fields of art history, aesthetic politics, music criticism, film and social philosophy. Presently completing the second half of the text, he plans to self-publish the collection of essays under the title, Intermedia, Inc.
+An avid organizer of creative music concerts in the Northeast (and North America more broadly), Hutchins has in 2022 and 2023 installed an extensive public-facing archive of ‘90s Chicago music 10-years-in-the-making at Chicago’s beloved ESS; presented unpublished prepared piano works on Swedish radio; performed at prisoner advocacy coalition events; and published an essay exploring racial politics surrounding the work of early minimalist Terry Jennings (1940–1981). After invitations by Journal of Sonic Studies (NL), Sound American (US), and others, he has begun research on Iancu Dumitrescu and Axel Dörner. Further working to dissolve the rifts between the sensual, the aesthetic and the politico-rational, Hutchins is currently preparing a lengthy manuscript (in private circulation, 2019 to present), “Please Note Our Failure : Two Generations of American Experimental Music” that embraces the fields of art history, aesthetic politics, music criticism, film and social philosophy. Presently completing the second half of the text, he plans to self-publish the collection of essays under the title, <i>Intermedia, Inc.</i>
 
 
 
@@ -42,7 +42,7 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 
 
-2025 “Highway ‘67 Revisited: Book Reviews: Sound Art Revisited and Common Tones by Alan Licht”
+2025 “Highway ‘67 Revisited: Book Reviews: <i>Sound Art Revisited</i> and <i>Common Tones</i> by Alan Licht”
 
 2025 “Against trademark hollowness: The difference that “Theory” makes”
 
@@ -52,13 +52,13 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 2023 “Perpetual Crossings: Terry Jennings, A Lost Link” 
 
-2021 “‘…one would sink in a sea of Rauschen’”: IN MEMORIAM. Peter Rehberg & the New Internationale”
+2021 “‘…<i>one would sink in a sea of Rauschen</i>’”: IN MEMORIAM. Peter Rehberg & the New Internationale”
 
 2021 “New York – But in Chicago: On John Cage, Morton Feldman & Merce Cunningham’s Postmodern Afterlives”
 
 2020 “Intergenerational Rapport Across Art: Cage, Cunningham & Co.”
 
-2019 Please Note Our Failure: Two Generations of American Experimental Music
+2019 <i>Please Note Our Failure: Two Generations of American Experimental Music</i>
 
 2019 “David Grubbs: ‘My instinct is that in some ways…’”: Interview, September 2019”
 
@@ -66,13 +66,13 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 2019  “Object & Objectivity in the Archive” 
 
-2018 The Passing Away of Nature: Two Essays on Natural History 
+2018 <i>The Passing Away of Nature: Two Essays on Natural History</i> 
 
 2017 “A post-Sandy Literature? Writing Contemporary Ecological Subjectivity” 
 
 2017 “Looking Back On Adorno’s Late-Marxism (On the Centennial of the Russian Revolution)” 
 
-2017 “On the Non-identity of Experience and the Concept: A Critical Reading of Theodor W. Adorno’s Hegel: Three Studies”
+2017 “On the Non-identity of Experience and the Concept: A Critical Reading of Theodor W. Adorno’s <i>Hegel: Three Studies</i>”
 
 2016 “On Wertkritik: Against the Fetish of ‘the Omnipotence of Critique’”
 
@@ -80,13 +80,13 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 2016 “The Problem of Historical Consciousness in Théorie Communiste and Communisation”
 
-2015 “The Pharmakon of Nature: Reading G.W.F. Hegel’s Philosophy of Nature in the Anthropocene”
+2015 “The <i>Pharmakon</i> of Nature: Reading G.W.F. Hegel’s <i>Philosophy of Nature</i> in the Anthropocene”
 
 2014 “Recuperated Spontaneity or Bad Infinity? A Character Study of Godard’s Jean-Pierre Léaud”
 
 2014 “Lending Voices To Suffering: Theodor W. Adorno’s Interdisciplinary Cultural Criticism”
 
-2013 Kierkegaard’s Ethical Critique of Hegel and His Literary Experimentation with Communicating Ethical and Religious Knowledge
+2013 <i>Kierkegaard’s Ethical Critique of Hegel and His Literary Experimentation with Communicating Ethical and Religious Knowledge</i>
 
 
 
@@ -110,7 +110,7 @@ Having worked full-time in the antiquarian book trade for nearly a decade, Hutch
 
 
 
-Fascinated by the literature of Kafka, Camus, Beckett, and Sartre from a young age, Hutchins is honored to have studied with a range of distinguished scholars over the years such as Susan Buck-Morss, Tilottama Rajan, Alan Bass, Chris Cutrone (in SAIC’s Visual and Critical Studies), Eva Guelen, James Miller, Daniel Berthold-Bond, Peg Birmingham, Michael Naas, Elizabeth Rottenberg, and Joel Whitebook. He is particularly grateful to have been exposed to the work of art historian Stephen Melville while at Bard College, whose unique blend of Stanley Cavell, Michael Fried, deconstruction, and G.W.F. Hegel has left an indelible impression on him and has guided his own subsequent work. At 22, he completed a research fellowship at St. Olaf’s College which centered on post-Heideggerian and -Derridean philosophy. From essentially ages 22 to 27, Hutchins devoted himself almost exclusively to the fractious (post-anarchist, post-Marxist, etc.) Youth Group geist in Chicago and New York City (often attending conferences, demos, and events), and extensively studied the corollary natural history of the left. While studying in graduate school with Tilottama Rajan on a full scholarship at Western University, Hutchins deepened his exposure to post-Derridean deconstruction and its relation to German Idealism, the original version of his Master's thesis written in the improbable two-faced style of Glas (1974). 
+Fascinated by the literature of Kafka, Camus, Beckett, and Sartre from a young age, Hutchins is honored to have studied with a range of distinguished scholars over the years such as Susan Buck-Morss, Tilottama Rajan, Alan Bass, Chris Cutrone (in SAIC’s Visual and Critical Studies), Eva Guelen, James Miller, Daniel Berthold-Bond, Peg Birmingham, Michael Naas, Elizabeth Rottenberg, and Joel Whitebook. He is particularly grateful to have been exposed to the work of art historian Stephen Melville while at Bard College, whose unique blend of Stanley Cavell, Michael Fried, deconstruction, and G.W.F. Hegel has left an indelible impression on him and has guided his own subsequent work. At 22, he completed a research fellowship at St. Olaf’s College which centered on post-Heideggerian and -Derridean philosophy. From essentially ages 22 to 27, Hutchins devoted himself almost exclusively to the fractious (post-anarchist, post-Marxist, etc.) Youth Group geist in Chicago and New York City (often attending conferences, demos, and events), and extensively studied the corollary natural history of the left. While studying in graduate school with Tilottama Rajan on a full scholarship at Western University, Hutchins deepened his exposure to post-Derridean deconstruction and its relation to German Idealism, the original version of his Master's thesis written in the improbable two-faced style of <i>Glas</i> (1974). 
 
 Hutchins’ current research and teaching interests center on the largely unexplored territory between art history, visual studies and media studies.
 
@@ -120,7 +120,7 @@ Hutchins’ current research and teaching interests center on the largely unexpl
 
 
 
-“[I]t can be tempting to imagine that poststructuralism can be defined in whole or in part by a certain return of or to phenomenology. There is, I think, something to this: but it also mistakes both the extent to which questions of perception and interpretation have been radically recast by the appeal to Saussure’s model of language and the extent to which the interests underlying that appeal, outside of its most purely scientistic forms, are shaped precisely by a history of engagement with phenomenology and its hermeneutical offspring. This, I would argue, is visible even in the work of Lévi-Strauss—an aspect of his work that is lucidly registered by Ricouer in his remark that what Lévi-Strauss urges is a Kantism without a transcendental ego, a description that opens an easy passage between that work and Heidegger’s. This of course would be to suggest that the difference between structuralism and poststructuralism is less usefully thought of as a difference about phenomenology than as the unfolding or repetition of a difference properly within it, marking limits at once internal and external to it. That is, structuralism and poststructuralism alike can be said to belong, in part at least, to phenomenology just insofar as it is not a settled body of practices or propositions but something more like a style or a movement—and is a movement just because it is bound to the unfolding ambiguities of its claim to grasp things as they are—ambiguities that importantly pass between “description” and “interpretation.” If the emergence of theory marks a crisis for phenomenology, bringing out its internal impasses and demanding its continuation in a radically transformed register (one in which it can no longer or only with great difficulty recognize itself), this is perhaps because the newer work forces the recognition that what presents itself as perceptual cannot be registered except under some condition of legibility—which is to say that the ambiguities within the claim to “grasp things as they are” are not simply infelicitous features of a language we are obliged to use but are a part of the structure of that grasp.” — S. M., Seams
+“[I]t can be tempting to imagine that poststructuralism can be defined in whole or in part by a certain return of or to phenomenology. There is, I think, something to this: but it also mistakes both the extent to which questions of perception and interpretation have been radically recast by the appeal to Saussure’s model of language and the extent to which the interests underlying that appeal, outside of its most purely scientistic forms, are shaped precisely by a history of engagement with phenomenology and its hermeneutical offspring. This, I would argue, is visible even in the work of Lévi-Strauss—an aspect of his work that is lucidly registered by Ricouer in his remark that what Lévi-Strauss urges is a Kantism without a transcendental ego, a description that opens an easy passage between that work and Heidegger’s. This of course would be to suggest that the difference between structuralism and poststructuralism is less usefully thought of as a difference about phenomenology than as the unfolding or repetition of a difference properly within it, marking limits at once internal and external to it. That is, structuralism and poststructuralism alike can be said to belong, in part at least, to phenomenology just insofar as it is not a settled body of practices or propositions but something more like a style or a movement—and is a movement just because it is bound to the unfolding ambiguities of its claim to grasp things as they are—ambiguities that importantly pass between “description” and “interpretation.” If the emergence of theory marks a crisis for phenomenology, bringing out its internal impasses and demanding its continuation in a radically transformed register (one in which it can no longer or only with great difficulty recognize itself), this is perhaps because the newer work forces the recognition that what presents itself as perceptual cannot be registered except under some condition of legibility—which is to say that the ambiguities within the claim to “grasp things as they are” are not simply infelicitous features of a language we are obliged to use but are a part of the structure of that grasp.” — S. M., <i>Seams</i>
 
 
 
