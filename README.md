@@ -1,6 +1,6 @@
 # domenichutchins.github.io
 
-Domenic Hutchins Writer, Creative Music, Rare Book Seller
+<b>Domenic Hutchins: Writer, Creative Music, Rare Book Seller</b>
 
 
 Updates, News – 2023, 2024, 2025:
