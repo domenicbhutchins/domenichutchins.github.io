@@ -6,7 +6,7 @@ Domenic Hutchins Writer, Creative Music, Rare Book Seller
 Updates, News – 2023, 2024, 2025:
 
 
-For Hutchins' remastering project of works spanning from 2021 to 2023, please visit [here](www.youtube.com/@HighsmithPsy)
+For Hutchins' remastering project of works spanning from 2021 to 2023, please visit [here](https://www.youtube.com/@HighsmithPsy)
 
 
 
