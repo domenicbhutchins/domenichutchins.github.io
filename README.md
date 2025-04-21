@@ -22,7 +22,9 @@ Hutchins works as an artist assistant for Paul Brown. One artist-run label Hutch
 
 
 
-Bio – Writer, Creative Music, Rare Book Seller: Domenic Hutchins (b. 1991, U.S.) received undergraduate and graduate degrees in philosophy before entering the fields of art criticism and the antiquarian book trade. Between 2017 and 2019, Hutchins presented a diverse selection of rigorous research at a range of conferences on subjects including Andrew Durbin’s contemporary eco-poetics, Theodor Adorno’s aesthetic political philosophy, and differing approaches to archival research in and outside the university. Through labels such as HighsmithPsy (US) and Superpang (Italy), Hutchins has presented acoustic and electronic music works with disparate collaborators including poet Adrienne Herr, improviser Ananya Ganesh, composer Greg Davis, among others. In 2023, the music of Ganesh and Hutchins (as Mme Sand) was selected by Berlin-based curator Juliette Henrioud to be played on the Mallorcan channel Nits de la Tramuntana (see below).
+<b>Bio – Writer, Creative Music, Rare Book Seller:</b> 
+
+Domenic Hutchins (b. 1991, U.S.) received undergraduate and graduate degrees in philosophy before entering the fields of art criticism and the antiquarian book trade. Between 2017 and 2019, Hutchins presented a diverse selection of rigorous research at a range of conferences on subjects including Andrew Durbin’s contemporary eco-poetics, Theodor Adorno’s aesthetic political philosophy, and differing approaches to archival research in and outside the university. Through labels such as HighsmithPsy (US) and Superpang (Italy), Hutchins has presented acoustic and electronic music works with disparate collaborators including poet Adrienne Herr, improviser Ananya Ganesh, composer Greg Davis, among others. In 2023, the music of Ganesh and Hutchins (as Mme Sand) was selected by Berlin-based curator Juliette Henrioud to be played on the Mallorcan channel Nits de la Tramuntana (see below).
 
 
 
