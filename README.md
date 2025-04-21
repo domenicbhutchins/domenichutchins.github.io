@@ -3,7 +3,7 @@
 <b>Domenic Hutchins: Writer, Creative Music, Rare Book Seller</b>
 
 
-Updates, News – 2023, 2024, 2025:
+<b>Updates, News – 2023, 2024, 2025:</b>
 
 
 For Hutchins' remastering project of works spanning from 2021 to 2023, please visit [here](https://www.youtube.com/@HighsmithPsy)
@@ -38,7 +38,7 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 
 
-SELECTED PRESENTATIONS, PUBLICATIONS, MONOGRAPHS, PAPERS, INTERVIEWS:
+<b>SELECTED PRESENTATIONS, PUBLICATIONS, MONOGRAPHS, PAPERS, INTERVIEWS:</b>
 
 
 
@@ -90,7 +90,7 @@ SELECTED PRESENTATIONS, PUBLICATIONS, MONOGRAPHS, PAPERS, INTERVIEWS:
 
 
 
-Artistic and Musical background:
+<b>Artistic and Musical background:</b>
 
 
 
@@ -98,7 +98,7 @@ Hutchins grew up in a musical household in Portland, Maine, and first fell in lo
 
 
 
-Antiquarian Book Selling background:
+<b>Antiquarian Book Selling background:</b>
 
 
 
@@ -106,7 +106,7 @@ Having worked full-time in the antiquarian book trade for nearly a decade, Hutch
 
 
 
-Academic background:
+<b>Academic background:</b>
 
 
 
