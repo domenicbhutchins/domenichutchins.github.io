@@ -117,6 +117,8 @@ Fascinated by the literature of Kafka, Camus, Beckett, and Sartre from a young a
 Hutchins’ current research and teaching interests center on the largely unexplored territory between art history, visual studies and media studies.
 
 
+    ///
+
 
 “Feldman is most compelling on the nature of artistic freedom. The academician is not interested in the matter because ‘in freedom he cannot reenact the role of the artist.’”—Kyle Gann
 
