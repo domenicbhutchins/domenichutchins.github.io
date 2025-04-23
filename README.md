@@ -45,27 +45,49 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 
 2025 “Highway ‘67 Revisited: Book Reviews: <i>Sound Art Revisited</i> and <i>Common Tones</i> by Alan Licht”
+
 2025 “Against trademark hollowness: The difference that “Theory” makes”
+
 2024 “Ephemerality & the archive: Encountering the 2nd generation of the AACM, via recordings & concerts in the ‘80s”: An Interview with Gene Coleman
+
 2024 “Illustrated Cover Letter: The Internationalism of ‘90s Chicago’s Underground Music Scene”
+
 2023 “Perpetual Crossings: Terry Jennings, A Lost Link” 
+
 2021 “‘…<i>one would sink in a sea of Rauschen</i>’”: IN MEMORIAM. Peter Rehberg & the New Internationale”
+
 2021 “New York – But in Chicago: On John Cage, Morton Feldman & Merce Cunningham’s Postmodern Afterlives”
+
 2020 “Intergenerational Rapport Across Art: Cage, Cunningham & Co.”
+
 2019 <i>Please Note Our Failure: Two Generations of American Experimental Music</i>
+
 2019 “David Grubbs: ‘My instinct is that in some ways…’”: Interview, September 2019”
+
 2019 “Constantly Connecting the Dots” (From Henry Kaiser to Eternity—): An Interview with Alan Licht on Unlikely Musical Correspondences”
+
 2019  “Object & Objectivity in the Archive” 
+
 2018 <i>The Passing Away of Nature: Two Essays on Natural History</i> 
+
 2017 “A post-Sandy Literature? Writing Contemporary Ecological Subjectivity” 
+
 2017 “Looking Back On Adorno’s Late-Marxism (On the Centennial of the Russian Revolution)” 
+
 2017 “On the Non-identity of Experience and the Concept: A Critical Reading of Theodor W. Adorno’s <i>Hegel: Three Studies</i>”
+
 2016 “On Wertkritik: Against the Fetish of ‘the Omnipotence of Critique’”
+
 2016 “‘Corridor in the Hotel’: Explicating and Applying William James’s Pragmatist Critique of Temperament”
+
 2016 “The Problem of Historical Consciousness in Théorie Communiste and Communisation”
+
 2015 “The <i>Pharmakon</i> of Nature: Reading G.W.F. Hegel’s <i>Philosophy of Nature</i> in the Anthropocene”
+
 2014 “Recuperated Spontaneity or Bad Infinity? A Character Study of Godard’s Jean-Pierre Léaud”
+
 2014 “Lending Voices To Suffering: Theodor W. Adorno’s Interdisciplinary Cultural Criticism”
+
 2013 <i>Kierkegaard’s Ethical Critique of Hegel and His Literary Experimentation with Communicating Ethical and Religious Knowledge</i>
 
 
