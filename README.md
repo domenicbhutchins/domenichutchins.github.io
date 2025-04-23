@@ -45,49 +45,27 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 
 2025 “Highway ‘67 Revisited: Book Reviews: <i>Sound Art Revisited</i> and <i>Common Tones</i> by Alan Licht”
-
 2025 “Against trademark hollowness: The difference that “Theory” makes”
-
 2024 “Ephemerality & the archive: Encountering the 2nd generation of the AACM, via recordings & concerts in the ‘80s”: An Interview with Gene Coleman
-
 2024 “Illustrated Cover Letter: The Internationalism of ‘90s Chicago’s Underground Music Scene”
-
 2023 “Perpetual Crossings: Terry Jennings, A Lost Link” 
-
 2021 “‘…<i>one would sink in a sea of Rauschen</i>’”: IN MEMORIAM. Peter Rehberg & the New Internationale”
-
 2021 “New York – But in Chicago: On John Cage, Morton Feldman & Merce Cunningham’s Postmodern Afterlives”
-
 2020 “Intergenerational Rapport Across Art: Cage, Cunningham & Co.”
-
 2019 <i>Please Note Our Failure: Two Generations of American Experimental Music</i>
-
 2019 “David Grubbs: ‘My instinct is that in some ways…’”: Interview, September 2019”
-
 2019 “Constantly Connecting the Dots” (From Henry Kaiser to Eternity—): An Interview with Alan Licht on Unlikely Musical Correspondences”
-
 2019  “Object & Objectivity in the Archive” 
-
 2018 <i>The Passing Away of Nature: Two Essays on Natural History</i> 
-
 2017 “A post-Sandy Literature? Writing Contemporary Ecological Subjectivity” 
-
 2017 “Looking Back On Adorno’s Late-Marxism (On the Centennial of the Russian Revolution)” 
-
 2017 “On the Non-identity of Experience and the Concept: A Critical Reading of Theodor W. Adorno’s <i>Hegel: Three Studies</i>”
-
 2016 “On Wertkritik: Against the Fetish of ‘the Omnipotence of Critique’”
-
 2016 “‘Corridor in the Hotel’: Explicating and Applying William James’s Pragmatist Critique of Temperament”
-
 2016 “The Problem of Historical Consciousness in Théorie Communiste and Communisation”
-
 2015 “The <i>Pharmakon</i> of Nature: Reading G.W.F. Hegel’s <i>Philosophy of Nature</i> in the Anthropocene”
-
 2014 “Recuperated Spontaneity or Bad Infinity? A Character Study of Godard’s Jean-Pierre Léaud”
-
 2014 “Lending Voices To Suffering: Theodor W. Adorno’s Interdisciplinary Cultural Criticism”
-
 2013 <i>Kierkegaard’s Ethical Critique of Hegel and His Literary Experimentation with Communicating Ethical and Religious Knowledge</i>
 
 
@@ -104,7 +82,7 @@ Hutchins grew up in a musical household in Portland, Maine, and first fell in lo
 
 
 
-Having worked full-time in the antiquarian book trade for nearly a decade, Hutchins is proficient in handling and cataloging a wide range of materials such as maps and bird’s eye views, photography, rare books and sammelbands, manuscript and typescript, lithography and chromolithography, ephemera, archives, broadsides and handbills, fine art and prints, material culture, African Americana, and Western Americana. Having studied at the University of Virginia’s Rare Book School, Hutchins is well-versed in the bibliographic, academic, and auction literature that is part and parcel of the antiquarian, map, and rare book trades, while his study in Tufts’s Museum Studies program has deepened his knowledge of the interfaces between institutions, dealers, curators, and the trade. Hutchins often attends antiquarian book fairs in the Northeast and also avidly assists in sourcing and placing materials. Contributing to Hutchins’ proficiency in this field is his own decade-long study of such authors on archival research/method as Saidiya Hartman, Philippe Lacoue-Labarthe, Jean-Luc Nancy, Jacques Derrida, Stephen Melville, Michel Foucault and Susan Howe—a topic he has presented on at academic conferences. Given these interests, it will be no surprise that Hutchins takes a particular interest in the broader ecosystem surrounding the trade (that supports and sustains it), which embraces framing, auction houses, book and paper restoration, curators, historical salvage, art workers, fairs, journalism, promoters, and the art world. A small sampling of his work is accessible here.  
+Having worked full-time in the antiquarian book trade for nearly a decade, Hutchins is proficient in handling and cataloging a wide range of materials such as maps and bird’s eye views, photography, rare books and sammelbands, manuscript and typescript, lithography and chromolithography, ephemera, archives, broadsides and handbills, fine art and prints, material culture, African Americana, and Western Americana. Having studied at the University of Virginia’s Rare Book School, Hutchins is well-versed in the bibliographic, academic, and auction literature that is part and parcel of the antiquarian, map, and rare book trades, while his study in Tufts’s Museum Studies program has deepened his knowledge of the interfaces between institutions, dealers, curators, and the trade. Hutchins often attends antiquarian book fairs in the Northeast and also avidly assists in sourcing and placing materials. Contributing to Hutchins’ proficiency in this field is his own decade-long study of such authors on archival research/method as Saidiya Hartman, Philippe Lacoue-Labarthe, Jean-Luc Nancy, Jacques Derrida, Stephen Melville, Michel Foucault and Susan Howe—a topic he has presented on at academic conferences. Given these interests, it will be no surprise that Hutchins takes a particular interest in the broader ecosystem surrounding the trade (that supports and sustains it), which embraces framing, auction houses, book and paper restoration, curators, historical salvage, art workers, fairs, journalism, promoters, and the art world. A small sampling of his work is accessible [<i>here</i>](https://www.jamesarsenault.com/catalogs.php).  
 
 
 
