@@ -90,6 +90,9 @@ Hutchins has also completed graduate work at Tufts’s Museum Studies program an
 
 2013 <i>Kierkegaard’s Ethical Critique of Hegel and His Literary Experimentation with Communicating Ethical and Religious Knowledge</i>
 
+2012 “A Phenomenological Study of the Epistemological Shift from Hinduism to Buddhism in Light of post-Kantian Continental Philosophy”
+
+
 
 
 <b>Artistic and Musical background:</b>
