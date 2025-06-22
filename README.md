@@ -6,7 +6,7 @@
 <b>Updates, News – 2023, 2024, 2025:</b>
 
 
-For Hutchins' remastering project of works spanning from 2021 to 2023, please visit [here](https://www.youtube.com/@HighsmithPsy)
+For Hutchins' remastering project of works spanning from 2021 to 2023, please visit [here](https://www.youtube.com/@HighsmithPsy) Included are selections from solo and collaborative album-length projects including _Piano Solo — April 2023_ (2023); _Voidance, Stargazing…_ (2022); _“…and the starry heavens above”: Voice & Prepared Piano Works_ (2022); _Languid Music_ (2023); _Mids - Chance music for two pianos_ (2024); _Prepared, Chance & Duo Piano Works I_ (2022); _Compleat Blues_ (2022)
 
 
 
